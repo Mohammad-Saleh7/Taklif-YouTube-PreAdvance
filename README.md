@@ -1,1 +1,0 @@
-# Taklif-YouTube-PreAdvance
